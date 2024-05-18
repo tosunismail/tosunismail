@@ -1,4 +1,4 @@
-### Hi there 👋
+###
 
 📫 How to reach me **tosun.ismail@yahoo.com**
 
