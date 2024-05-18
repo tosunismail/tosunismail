@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 📫 How to reach me **tosun.ismail@yahoo.com**
+📫 How to reach me **tosun.ismail@yahoo.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
